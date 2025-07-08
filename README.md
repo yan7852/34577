@@ -25,4 +25,4 @@
 你不需要支付任何费用，也不需要注册会员，所有的影片都可以免费直接观看。我们定期更新内容，确保你能够第一时间看到最新的日本AV作品。无论何时，你都可以轻松享受免费、高清、无广告的看片体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yan7852/34577 ）</span>
